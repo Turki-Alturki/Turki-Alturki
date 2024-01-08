@@ -23,7 +23,7 @@ HR professional, with an orientation and inclination for organizational developm
 
 
  
-| Dates | Company | Title |
+| Dates | Company | Job Title |
 | --- | --- | --- |
 | Jun 2023 - Present | Rasid Holdin Co | HR Manager |
 | Mar 2023 - Jul 2023 | WOSUL | HR Consultant |
