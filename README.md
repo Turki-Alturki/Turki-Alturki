@@ -28,5 +28,5 @@ HR professional, with an orientation and inclination for organizational developm
 | Jun 2023 - Present | Rasid Holdin Co | HR Manager |
 | Mar 2023 - Jul 2023 | WOSUL | HR Consultant |
 | Sep 2021 – May 2023 | NearPay | HR Assistant Manager |
-| Sep 2019– Aug 2021 | Ersal Money Transfer (Alinma bank) | Senior OD Specialist |
+| Sep 2019 – Aug 2021 | Ersal Money Transfer (Alinma bank) | Senior OD Specialist |
 | May 2013 – August 2019 | Alturki for Automotive Services and Parts | Co-Founder |
