@@ -25,7 +25,7 @@ HR professional, with an orientation and inclination for organizational developm
  
 | Dates | Company | Job Title |
 | --- | --- | --- |
-| Mar 2024 - Present  | Tharwah | HR Manager |
+| Mar 2024 - Present  | Tawantech | HR Manager |
 | Jun 2023 - Feb 2024 | Rasid Holdin Co | HR Manager |
 | Mar 2023 - Jul 2023 | WOSUL | HR Consultant |
 | Sep 2021 - May 2023 | NearPay | HR Assistant Manager |
